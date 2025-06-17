@@ -1,4 +1,4 @@
-# RANDOM LINKSSSSSSSS
+https://ifyoublockthisiwillstabyou.global.ssl.fastly.net/# RANDOM LINKSSSSSSSS
 - ***Control+f to search through the links***
 - ***ALL OF THESE LINKS WORK,AND ARE DEPLOYED BY ME AND FASTLY.NET!! 😏 =-D***
 - [Waves](https://posiedonissocool.global.ssl.fastly.net/)
@@ -44,3 +44,5 @@
 - [VortexOS BEST!!!!!!!!!!!](https://thisvortexiswildandcrazyjustlikemeandyoutogether.global.ssl.fastly.net/)
 - [SakuraOS](sakurafromnarutoishot.global.ssl.fastly.net)
 - [1346.lol](https://theloldomainiswildand1346iscrazy.global.ssl.fastly.net/)
+- [Now.gg Roblox](https://ifyoublockthisiwillstabyou.global.ssl.fastly.net/)
+- 
