@@ -45,4 +45,4 @@ https://ifyoublockthisiwillstabyou.global.ssl.fastly.net/# RANDOM LINKSSSSSSSS
 - [SakuraOS](sakurafromnarutoishot.global.ssl.fastly.net)
 - [1346.lol](https://theloldomainiswildand1346iscrazy.global.ssl.fastly.net/)
 - [Now.gg Roblox](https://ifyoublockthisiwillstabyou.global.ssl.fastly.net/)
-- 
+- [Chatgpt](https://jaydonandilikesquirrels.b-cdn.net/)
